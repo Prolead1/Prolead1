@@ -1,4 +1,4 @@
-# Heya stranger 👋 ! 
+# Heya 👋 ! 
 
 I'm Rahul Thaker 🧑‍💻, and I love designing experiences 🎨, and building products that make a difference 🏗️!
 
